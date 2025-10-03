@@ -1,1 +1,1 @@
-# -_-
+# a pack of cigarettes
